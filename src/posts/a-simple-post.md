@@ -1,5 +1,5 @@
 ---
-title: A simple post
+title: How I work as a counsellor
 date: 2022-09-16T08:30:15.743Z
 tags:
   - focusing;counselling;change
