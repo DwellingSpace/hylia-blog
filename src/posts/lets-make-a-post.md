@@ -3,13 +3,7 @@ layout: layouts/post.njk
 title: Let's make a post
 date: 2022-09-17T08:50:25.590Z
 ---
-A﻿nd a blockquote because that looks rather nice. Not sure how to put the author in a different size/font yet. 
-
-> C﻿arl Rogers
-
 ![](/images/aaron-burden-265916-unsplash.jpg)
-
-
 
 H﻿ello. I'm trying out a new post :)
 
