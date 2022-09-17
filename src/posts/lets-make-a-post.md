@@ -3,6 +3,12 @@ layout: layouts/post.njk
 title: Let's make a post
 date: 2022-09-17T08:50:25.590Z
 ---
+
+
+> I have found that when I am truly listened to... clear flowing streams..... 
+>
+> #### **C﻿arl Rogers**
+
 ![](/images/aaron-burden-265916-unsplash.jpg)
 
 H﻿ello. I'm trying out a new post :)
