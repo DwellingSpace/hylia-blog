@@ -17,4 +17,4 @@ N﻿o text yet, just seeing how it works and how it looks. And if I keep writing
 
 > A﻿nd a blockquote because that looks rather nice. Not sure how to put the author in a different size/font yet. 
 >
-> C﻿arl Rogers
+> #### **C﻿arl Rogers**
