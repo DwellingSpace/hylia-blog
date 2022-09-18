@@ -10,3 +10,7 @@ socialImage: /images/jr-korpa-k9TDpGMDavs-unsplash.jpg
 ![](/images/jr-korpa-k9TDpGMDavs-unsplash.jpg)
 
 W﻿elcome. I work online and in-person in counselling rooms in **Brighton, UK.**
+
+S﻿ome more text to come here, a little bit about how I work and that I am writing blog posts about counselling, focusing, how therapy works and so on. 
+
+![](/images/alison4.jpg)
