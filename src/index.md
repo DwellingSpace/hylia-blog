@@ -1,6 +1,6 @@
 ---
 layout: home
-title: Counselling with Alison
+title: Counselling with me
 metaTitle: Counselling in Brighton, Hove, East Sussex
 metaDesc: counselling and focusing in Hove, Brighton, BN1, BN2, BN3, BN41, BN43
 postsHeading: Some things to read that might be helpful
