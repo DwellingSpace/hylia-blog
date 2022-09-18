@@ -2,18 +2,18 @@
   "items": [
     {
       "text": "Home",
-      "url": "/",
+      "url": "/shimmering-marigold-4f5b4a.netlify.app/",
       "external": false
     },
     {
-      "text": "GitHub",
-      "url": "https://github.com/andy-piccalilli/hylia",
-      "external": true
-    },
-    {
-      "text": "Example Contact Page",
+      "text": "Contact me",
       "url": "/contact",
       "external": false
+    },
+    {
+      "text": "About Focusing",
+      "url": "/focusing.org.uk/member-profile/alisonthorpe",
+      "external": true
     }
   ]
 }
