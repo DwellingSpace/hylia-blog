@@ -11,15 +11,14 @@ socialImage: /images/jr-korpa-k9TDpGMDavs-unsplash.jpg
 
 Welcome. I work online and in-person in counselling rooms in **Brighton, UK.**
 
-Some more text to come here, a little bit about how I work and that I am writing blog posts about counselling, focusing, how therapy works and so on. 
+F﻿or information about what I charge for sessions, and where I'm located, [see here](/pages/about-me). 
 
-![](/images/alison4.jpg)
+![an outdoor photograph of Alison looking at the camera](/images/alison4.jpg "Photo of Alison Thorpe")
 
-So I could write a lot in here - look at what I've got on dwellingspace current website that needs to be on here. I could have a map - that would be better placed in the footer if that's possible - prob have to go into the code. Ah I also need Brighton and Hove Therapy Hub link... That also needs to go in the footer. And maybe NCS logo? 
+<!--StartFragment-->
 
-Oh and I am going to have artwork of how focusing, person centred counselling work, or the environment in which take place.
+Lorem ipsum dolor sit amet, consectetur adipiscing elit. Aliquam lobortis tempor nibh quis auctor. Duis eget tincidunt lorem, non condimentum lectus. Nulla consequat ligula non risus tempor, sed posuere felis cursus. Etiam efficitur risus ac tellus convallis, id tempus arcu ullamcorper. Ut vestibulum ex vitae posuere vulputate. Fusce bibendum dui eget ante ullamcorper, et posuere neque hendrerit. Quisque ante velit, pulvinar vel neque sed, viverra suscipit elit. Integer nec facilisis nulla, rhoncus blandit erat. Phasellus eu nunc at ligula bibendum venenatis id ut ligula. Cras ac sem et justo auctor venenatis. Donec luctus ante odio, condimentum convallis erat scelerisque non.
 
-Also is there a way of having a post that is like pinned post on twitter?
+Mauris vulputate tempus molestie. Maecenas sed tristique nisl. Proin venenatis erat dolor, nec mattis turpis eleifend nec. Cras porttitor efficitur venenatis. Nam ac accumsan risus. Maecenas vulputate justo non nisl rhoncus sodales. Nam fringilla, augue at pharetra placerat, nibh felis cursus quam, at aliquam velit felis vitae lacus. Fusce efficitur tellus nibh, a blandit justo vulputate condimentum. Suspendisse est turpis, venenatis et tellus quis, auctor rhoncus erat. Nam pellentesque neque rutrum, dictum purus id, molestie justo. Vestibulum laoreet id erat vitae mollis. Donec eu pharetra urna, non sodales mi. Etiam ac tellus velit. Mauris lacus tortor, lacinia non arcu venenatis, euismod pellentesque risus. Curabitur egestas risus non placerat tincidunt. Donec commodo blandit rutrum
 
-Really I'd like a website where could have say 3 columns where have focusing, counselling and metaphor - oh and parts, working with, so maybe a grid of 4..... don't know how to do that.....(yet).
-
+<!--EndFragment-->
