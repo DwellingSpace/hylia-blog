@@ -2,7 +2,7 @@
   "items": [
     {
       "text": "Home",
-      "url": "/",
+      "url": "/shimmering-marigold-4f5b4a.netlify.app/",
       "external": false
     },
     {
@@ -11,7 +11,7 @@
       "external": true
     },
     {
-      "text": "Example Contact Page",
+      "text": "Contact me",
       "url": "/contact",
       "external": false
     }
