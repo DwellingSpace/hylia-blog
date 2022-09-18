@@ -1,9 +1,6 @@
 ---
-title: 'Contact'
-permalink: '/contact/index.html'
-layout: 'layouts/contact.njk'
+layout: layouts/contact.njk
+title: Contact me
+permalink: /contact/index.html
 ---
-
-You can have a contact page which uses a basic form. The [code with the form fields lives here](https://github.com/hankchizljaw/hylia/blob/master/src/_includes/layouts/contact.njk). 
-
-To delete the contact form for this site, delete this page in the CMS or at `src/pages/contact.md`. You probably will also want to delete `src/pages/thank-you.md`.
+Y﻿ou can use this form to make contact with me. I will usually reply within 24 hours. You do not need to write information about why you're seeking support at this time, we can talk together about this, but you are also welcome to write something here if you'd like to.
