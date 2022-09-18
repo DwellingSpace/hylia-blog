@@ -11,11 +11,9 @@ socialImage: /images/jr-korpa-k9TDpGMDavs-unsplash.jpg
 
 ![](/images/jr-korpa-k9TDpGMDavs-unsplash.jpg)
 
-W﻿elcome. I work online and in-person in Hove, Brighton. What happens if I make this quite long - does the yellow banner get bigger to accommodate the writing? I'm going to keep going to see what happens - ooh it made it bigger I think. 
+W﻿elcome. I work online and in-person in counselling rooms in Brighton. What happens if I make this quite long - does the yellow banner get bigger to accommodate the writing? I'm going to keep going to see what happens - ooh it made it bigger I think.
 
 I﻿ work in an experiential way - what does that mean?
-
-
 
 Y﻿eah, well what *does* that mean?
 
