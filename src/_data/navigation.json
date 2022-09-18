@@ -6,14 +6,18 @@
       "external": false
     },
     {
-      "text": "Contact me",
-      "url": "/contact",
-      "external": false
+      "text": "About me",
+      "url": "https://shimmering-marigold-4f5b4a.netlify.app/admin/#/collections/generic_pages/entries/about-me"
     },
     {
       "text": "About Focusing",
       "url": "http://focusing.org.uk/member-profile/alisonthorpe",
       "external": true
+    },
+    {
+      "text": "Contact me",
+      "url": "/contact",
+      "external": false
     }
   ]
 }
