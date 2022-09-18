@@ -3,8 +3,10 @@ layout: layouts/post.njk
 title: Test post
 date: 2022-09-18T06:59:28.088Z
 ---
-T﻿his is a test post. If I write above the image - does the homepage show the first x lines of text to give the reader some idea of what it is about. If not I need to tweak this.
+> When I have been listened to and when I have been heard, I am able to re-perceive my world in a new way and to go on. It is astonishing how elements which seem insoluble become soluble when someone listens. How confusions which seem irremediable turn into relatively clear flowing streams when one is heard.
+>
+> **C﻿arl Rogers**
 
-![Dark trees and grass maybe a forest with a very light patch of trees and grass ahead](/images/iva-rajovic-C1Sr11Fs5Zc-unsplash.jpg)
+![2 people sitting close together, cannot see their faces but see their hands in their laps](/images/priscilla-du-preez-F9DFuJoS9EU-unsplash.jpg "2 people together, hands in their laps")
 
-T﻿his is a test post with an image and some text. The image implies maybe walking through darkness and into light, or something one is heading towards, or a path one could take....
+S﻿ome more text here.
