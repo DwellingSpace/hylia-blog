@@ -1,6 +1,10 @@
 {
   "items": [
     {
+      "text": "About me",
+      "url": "https://shimmering-marigold-4f5b4a.netlify.app/admin/#/collections/generic_pages/entries/about-me"
+    },
+    {
       "text": "Home",
       "url": "/shimmering-marigold-4f5b4a.netlify.app/",
       "external": false
