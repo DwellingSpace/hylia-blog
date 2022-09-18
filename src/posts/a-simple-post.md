@@ -7,7 +7,9 @@ tags:
 > ﻿Every bad feeling is potential energy toward a more right way of being if you give it space to move towards its rightness. 
 > **Gene Gendlin**
 
-I﻿ am influenced by some different ways of working, all of which I've found extremely helpful for effecting change - within ourselves and how we are in the world:
+Explain the quote....
+
+I﻿ am influenced by some different ways of working, all of which I've found extremely helpful for effecting change - within ourselves and how we are in the world
 
 * f﻿ocusing
 * p﻿erson-centred experiential counselling
