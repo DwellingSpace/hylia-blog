@@ -13,7 +13,7 @@ Welcome. I work online and in-person in counselling rooms in **Brighton, UK.**
 
 F﻿or information about what I charge for sessions, and where I'm located, [see here](/pages/about-me). 
 
-![an outdoor photograph of Alison looking at the camera](/images/alison4.jpg "Photo of Alison Thorpe")
+![]()
 
 <!--StartFragment-->
 
