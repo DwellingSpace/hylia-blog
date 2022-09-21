@@ -2,7 +2,7 @@
 layout: layouts/page.njk
 title: About me
 permalink: ""
-socialImage: /images/alison4.jpg
+socialImage: /images/counselling-photo-sept-22.jpg
 ---
 ![](/images/alison4.jpg)
 
