@@ -4,7 +4,7 @@ title: About me
 permalink: ""
 socialImage: /images/counselling-photo-sept-22.jpg
 ---
-![](/images/alison4.jpg)
+![](/images/counselling-photo-sept-22.jpg)
 
  ﻿I'm a qualified person-centred counsellor, training at City Lit in London between 2012 and 2016. I am also a focusing practitioner with the [British Focusing Association](http://www.focusing.org.uk/member-profile/alisonthorpe). 
 
