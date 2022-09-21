@@ -13,6 +13,10 @@
       "text": "Contact me",
       "url": "/contact",
       "external": false
+    },
+    {
+      "text": "About counselling",
+      "url": "/pages/about-counselling"
     }
   ]
 }
