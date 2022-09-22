@@ -1,7 +1,7 @@
 ---
 layout: layouts/page.njk
 title: Focusing
-permalink: /pages/focusing
+permalink: ""
 socialImage: /images/alison-warm.jpg
 ---
 
