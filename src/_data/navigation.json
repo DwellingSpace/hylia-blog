@@ -1,23 +1,21 @@
 {
   "items": [
     {
-      "text": "Home",
-      "url": "/shimmering-marigold-4f5b4a.netlify.app/",
-      "external": false
-    },
-    {
       "text": "About me",
-      "url": "/about-me"
-    },
-    {
-      "text": "About Focusing",
-      "url": "http://focusing.org.uk/member-profile/alisonthorpe",
-      "external": true
+      "url": "/pages/about-me"
     },
     {
       "text": "Contact me",
       "url": "/contact",
       "external": false
+    },
+    {
+      "text": "About counselling",
+      "url": "/pages/about-counselling"
+    },
+    {
+      "text": "Focusing",
+      "url": "/pages/focusing"
     }
   ]
 }
