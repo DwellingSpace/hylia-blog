@@ -21,7 +21,7 @@ F﻿or information about what I charge for sessions, and where I'm located [**se
 
 B﻿elow are some blog posts about counselling and focusing and other subjects. Hopefully you will find them informative and also get more of a sense of how I am and how I work with people.
 
-T﻿he following posts explain how I work and what focusing is. 
+T﻿he following introductory posts explain how I work and what focusing is. 
 
 [Starting counselling](/posts/test-post)
 
