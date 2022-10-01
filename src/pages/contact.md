@@ -3,4 +3,12 @@ layout: layouts/contact.njk
 title: Contact me
 permalink: /pages/about-me
 ---
-You can use this form to make contact with me. I will usually reply within 24 hours. You do not need to write information about why you're seeking support at this time, we can talk together about this, but you are also welcome to write something here if you'd like to.
+C﻿ontact form not ready for website yet. Please contact me via:
+
+
+
+d﻿wellingspacecounselling@gmail.com       0772 803 6688
+
+
+
+T﻿hank you :)
