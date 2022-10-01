@@ -12,14 +12,13 @@ I﻿ am accredited with the [National Counselling Society](https://nationalcouns
 
 Y﻿ou can have counselling sessions with me, and you can also come and learn focusing with me or book a focusing session to see what it's all about.
 
-*﻿*What I charge for sessions**
+**What I charge for sessions**
 
 I﻿ charge between £50 and £55 per session. If we meet over Zoom or Skype etc, then the cost is £50 per 60 minute session. If we meet in-person, in a counselling room in Brighton, the cost is £55 for 50 minutes. (I can also offer longer sessions, eg 1.5 hours, both online or in-person, if this would suit you better - the cost of this is negotiable between us).
 
-*﻿*For focusing sessions** this is £45 online and £50 in person (BN3 5QL).
+**For focusing sessions** this is £45 online and £50 in person (BN3 5QL).
 
 I currently work at [148 Portland Road, Hove, BN3 5QL](https://www.google.co.uk/maps/place/148+Portland+Rd,+Hove+BN3+5QL/@50.8331519,-0.1872639,17z/data=!3m1!4b1!4m5!3m4!1s0x48759ab2e8763eed:0x392d32e02d282b9b!8m2!3d50.8331519!4d-0.1850699), and [69 Church Street, Hove, BN3 2BB](https://www.google.co.uk/maps/place/Hove+Therapy+Rooms/@50.8274527,-0.169047,17z/data=!3m2!4b1!5s0x4875856db4be2211:0xbd3df7230b051ce2!4m5!3m4!1s0x48758546d7924da7:0x1954ff1ba24dc6ce!8m2!3d50.8274493!4d-0.1668583). 
-
 
 Y﻿ou are very welcome to talk with me about what you would like at this point in your life. I'm happy to answer any questions you have about counselling with me and about focusing.
 
