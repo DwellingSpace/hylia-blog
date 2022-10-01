@@ -15,6 +15,7 @@ F﻿or information about what I charge for sessions, and where I'm located, [see
 
 Y﻿ou can contact me on **0772 803 6688** 
 
-**d﻿wellingspacecounselling@gmail.com**
+<a href="mailto:dwellingspacecounselling@email.com">
+d﻿wellingspacecounselling@gmail.com</a>
 
 O﻿r use the [contact form](/contact).
