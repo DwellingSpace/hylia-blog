@@ -15,4 +15,4 @@ F﻿or information about what I charge for sessions, and where I'm located [see 
 
 **[Please email me here](mailto:dwellingspacecounselling@gmail.com)**
 
-O﻿r call: **0772 803 6688**
+O﻿r call or text: **0772 803 6688**
