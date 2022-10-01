@@ -18,3 +18,11 @@ F﻿or information about what I charge for sessions, and where I'm located [**se
 [d﻿wellingspacecounselling@gmail.com](mailto:dwellingspacecounselling@gmail.com)
 
 **0772 803 6688**
+
+B﻿elow are some blog posts about counselling and focusing and other subjects. Hopefully you will find them informative and also get more of a sense of how I am and how I work with people.
+
+T﻿he following posts explain how I work and what focusing is. 
+
+[Starting counselling](/posts/test-post)
+
+[B﻿eing a 'hope merchant'](/posts/being-a-hope-merchant)
