@@ -13,6 +13,6 @@ Welcome. I work online and in-person in counselling rooms in **Brighton, UK.**
 
 F﻿or information about what I charge for sessions, and where I'm located, [see here](/pages/about-me).
 
-Y﻿ou can contact me on **0772 803 6688** 
+Y﻿ou can [send an email to me](mailto:dwellingspacecounselling@gmail.com)
+O﻿r [call](tel:+442778036688)
 
-<a href="mailto:dwellingspacecounselling@email.com"><b>d﻿wellingspacecounselling@gmail.com</a></b>
