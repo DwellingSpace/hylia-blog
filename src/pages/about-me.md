@@ -22,7 +22,7 @@ I currently work at [148 Portland Road, Hove, BN3 5QL](https://www.google.co.uk/
 
 Y﻿ou are very welcome to talk with me about what you would like at this point in your life. I'm happy to answer any questions you have about counselling with me and about focusing.
 
-A﻿lthough I am a qualified counsellor, I also work in other ways - you could have a more **coaching** style of working with me, or you can have **guided focusing sessions**I will be adding a video to this site soon to show what focusing can look like.
+A﻿lthough I am a qualified counsellor, I also work in other ways - you could have a more **coaching** style of working with me, or you can have **guided focusing sessions.** I will be adding a video to this site soon to show what focusing can look like.
 
 W﻿ith counselling, some regularity of sessions is helpful for us both. Some people, sometimes for financial reasons, have sessions every 2 weeks with me. I think a longer gap than 2 weeks between sessions can make it harder to have continuity in the work together so I prefer either weekly or bi-weekly. You can also have sessions twice a week if you need - for example to get you through a crisis
 
