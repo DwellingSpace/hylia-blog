@@ -24,5 +24,4 @@ B﻿elow are some blog posts about counselling and focusing and other subjects. 
 T﻿he following introductory posts explain how I work and what focusing is. 
 
 [Starting counselling](/posts/test-post)
-
-[B﻿eing a 'hope merchant'](/posts/being-a-hope-merchant)
+[﻿How I work](/pages/about-counselling)
