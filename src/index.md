@@ -15,5 +15,4 @@ F﻿or information about what I charge for sessions, and where I'm located, [see
 
 Y﻿ou can [send an email to me](mailto:dwellingspacecounselling@gmail.com)
 
-<﻿a href="tel+447728036688">Or call me at +447728036688</a>
 
