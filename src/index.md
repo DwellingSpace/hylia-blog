@@ -11,11 +11,10 @@ socialImage: /images/jr-korpa-k9TDpGMDavs-unsplash.jpg
 
 Welcome. I work online and in-person in counselling rooms in **Brighton, UK.**
 
-F﻿or information about what I charge for sessions, and where I'm located, [see here](/pages/about-me).
+F﻿or information about what I charge for sessions, and where I'm located, [see here]
 
-Y﻿ou can contact me on **0772 803 6688** 
+[Please email me here:](mailto:dwellingspacecounselling@gmail.com)**dwellingspacecounselling@gmail.com**
 
-<a href="mailto:dwellingspacecounselling@email.com">
-d﻿wellingspacecounselling@gmail.com</a>
+O﻿r call: +442778036688
 
-O﻿r use the [contact form](/contact).
+
