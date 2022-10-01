@@ -1,7 +1,7 @@
 ---
 layout: layouts/contact.njk
 title: Contact me
-permalink: /pages/about-me
+permalink: ""
 ---
 C﻿ontact form not ready for website yet. Please contact me via:
 
