@@ -7,12 +7,19 @@ postsHeading: Latest posts
 archiveButtonText: See all posts
 socialImage: /images/jr-korpa-k9TDpGMDavs-unsplash.jpg
 ---
-![](/images/jr-korpa-k9TDpGMDavs-unsplash.jpg)
+![Blue-green water with a building reflected in the water.](/images/jr-korpa-k9TDpGMDavs-unsplash.jpg)
 
-Welcome. I work online and in-person in counselling rooms in **Brighton, UK.**
+Welcome to my website. I hope you find some information that is helpful for you, and getting a good idea of how I work and how I can help you.
+
+I work online and in-person in counselling rooms in **Brighton, UK.**
+
+Please **[email me](mailto:dwellingspacecounselling@gmail.com)** or call/text:  **0772 803 6688**
 
 F﻿or information about what I charge for sessions, and where I'm located [see here.](/pages/about-me)
 
-**[Please email me here](mailto:dwellingspacecounselling@gmail.com)**
+B﻿elow are some blog posts about counselling and focusing and other subjects. 
 
-O﻿r call or text: **0772 803 6688**
+T﻿he following introductory posts explain how I work and what focusing is. 
+
+[Starting counselling](/posts/test-post)
+[﻿How I work](/pages/about-counselling)
