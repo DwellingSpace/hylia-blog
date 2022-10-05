@@ -2,6 +2,7 @@
 layout: layouts/post.njk
 title: Starting counselling
 metaTitle: counselling with Alison BN3 Brighton Hove
+socialImage: /images/alison-warm.jpg
 date: 2022-10-05T13:30:18.449Z
 ---
 > When I have been listened to and when I have been heard, I am able to re-perceive my world in a new way and to go on. It is astonishing how elements which seem insoluble become soluble when someone listens. How confusions which seem irremediable turn into relatively clear flowing streams when one is heard.
