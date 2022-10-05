@@ -15,7 +15,7 @@ There are different ways of exploring whether you'd like to have counselling - o
 
 Y﻿ou can email, text or call me. We can then either book in a first session (in-person or on Zoom/skype etc), or you can have an introductory chat for about 20 minutes that is free of charge (online/phone).
 
-W﻿hat happens in a first session?
+**W﻿hat happens in a first session?**
 
 I﻿ like to give you plenty of time in a first session to talk about what you need to. This means that you start to have some counselling and see how it feels to work with me, and start getting a sense of how I work.
 
