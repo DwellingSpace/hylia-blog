@@ -7,7 +7,7 @@ postsHeading: Latest posts
 archiveButtonText: See all posts
 socialImage: /images/jr-korpa-k9TDpGMDavs-unsplash.jpg
 ---
-![](/images/jr-korpa-k9TDpGMDavs-unsplash.jpg "Blue-green water with a building reflected in the water.")
+![Blue-green water with a building reflected in the water.](/images/jr-korpa-k9TDpGMDavs-unsplash.jpg)
 
 Welcome to my website. I hope you find some information that is helpful for you, and getting a good idea of how I work and how I can help you.
 
