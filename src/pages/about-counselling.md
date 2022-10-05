@@ -14,11 +14,9 @@ M﻿y core training was in the person-centred approach, developed in the 1940s a
 
 C﻿arl Rogers made some important discoveries, learning from some key people around him as he developed his counselling approach. 
 
-Firstly, he felt that people had, within themselves, what they needed in order to grow, to change, to move in a positive direction (whatever that meant for each individual person). 
+Firstly, he felt that people had, *within themselves*, what they needed in order to grow, to change, to move in a positive direction (whatever that meant for each individual person). 
 
-
-
-
+> ...the individual has within himself or herself vast resources for self-understanding, for altering his or her self-concept, attitudes and self-directed behavior - and that these resources can be tapped if only a definable climate of facilitative psychological attitudes can be provided.
 
 S﻿econdly, that meant that he didn't need to tell people what they should do or what their difficulty was. He understood that if he was focussed on the person, willing to understand what they were conveying to him, and putting himself as far as possible into their shoes, the client themselves would move in a direction that was helpful for them.
 
@@ -26,8 +24,12 @@ T﻿hirdly, he understood that people feel anxiety and shame about their issues 
 
 
 
-<!--StartFragment-->
+> It is the client who knows what hurts, what directions to go, what problems are crucial, what experiences have been deeply buried. It began to occur to me that unless I had a need to demonstrate my own cleverness and learning, I would do better to rely upon the client for the direction of movement in the process.
 
-it is the client who knows what hurts, what directions to go, what problems are crucial, what experiences have been deeply buried. It began to occur to me that unless I had a need to demonstrate my own cleverness and learning, I would do better to rely upon the client for the direction of movement in the process
+M﻿y commitment to you is to be really with you, to be alongside you, and encourage you as you take the risk of sharing what is hurting within you, what you long for, what you feel hopeless about or what you struggle with.
 
-<!--EndFragment-->
+A﻿nd....
+
+F﻿or me personally, I had a lot of counselling - in my 20s and 30s, and again in my 40s. I struggled with depression. I felt that through counselling I learnt a lot about myself, felt better in some ways, and worked towards changes. However, it wasn't until I came across focusing that things fundamentally changed for me.
+
+A﻿s a counsellor I work from a person-centred base - I will be with you as you explore what you need to. However, I work 'experientially'. I will try and explain what that means! (Which is not that easy).
