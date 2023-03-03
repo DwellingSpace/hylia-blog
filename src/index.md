@@ -9,7 +9,7 @@ socialImage: /images/jr-korpa-k9TDpGMDavs-unsplash.jpg
 ---
 ![Blue-green water with a building reflected in the water.](/images/jr-korpa-k9TDpGMDavs-unsplash.jpg)
 
-Welcome to my website. I hope you find some information that is helpful for you, and getting a good idea of how I work and how I can help you.
+Welcome to my website. My aim is to provide plenty of information so you can get a good idea of how I work and how we might work together to support you. That might be feeling better about yourself, moving out of depression or feeling stuck, and making changes in your life. I am qualified as a counsellor and registered with the National Counselling Society, and I am also training in a coaching approach called Clean Language. If you would like a more coaching style of working together we can explore that, or you might want counselling, or a personalised combination of both.
 
 I work online and in-person in counselling rooms in **Brighton, UK.**
 
