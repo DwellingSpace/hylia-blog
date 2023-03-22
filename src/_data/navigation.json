@@ -5,12 +5,12 @@
       "url": "/pages/about-me"
     },
     {
-      "text": "About counselling",
-      "url": "/pages/about-counselling"
-    },
-    {
       "text": "Focusing",
       "url": "/pages/focusing"
+    },
+    {
+      "text": "What I offer",
+      "url": "/pages/what-I-offer"
     }
   ]
 }
