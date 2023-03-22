@@ -1,6 +1,6 @@
 ---
 layout: layouts/page.njk
-title: About counselling
+title: What I offer
 permalink: ""
 ---
 T﻿ext to follow
