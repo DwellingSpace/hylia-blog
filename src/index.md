@@ -31,4 +31,4 @@ W﻿ELCOME VIDEO - IN PROGRESS....
 ![](/images/meric-dagli-518103-unsplash.jpg)
 
 [Starting counselling](/posts/test-post)
-[﻿How I work](/pages/about-counselling)
+[﻿How I work](/collections/posts)
