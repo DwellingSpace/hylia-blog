@@ -12,8 +12,6 @@ I﻿ am accredited with the [National Counselling Society](https://nationalcouns
 
 I﻿ am insured with Holistic insurance services.
 
-
-
 I﻿ can work with you as your counsellor, but there are other ways that we can work. 
 
 F﻿or example we can work in a more **coaching style** - eg exploring a specific goal you would like to achieve (eg more confident at work or overcoming a block) or I can provide a **guided Focusing session** (this is like meditation but turning your attention to your experiencing in the current moment: this might be sensations in your body, the emotional 'feel' of an issue in your life, or going with what comes - imagery for example).  Focusing is a profound deep change process.
@@ -26,13 +24,9 @@ F﻿or example, say you had an image of being at a crossroads, with fears of cho
 
 **Art and Imagery:** W﻿e can also bring in images into sessions by representing your issues, feelings, needs etc on paper. Eg with crayons, pastels, coloured pencils (which can be used like watercolours) and pens. 
 
-I﻿ am also looking to incorporate **sand tray work** or representing aspects of you experiences in objects. It can be really helpful to externalise issues or feelings about self on paper or by using objects.
+I﻿ am also looking to incorporate **sand tray work** or representing aspects of your experiences with objects. It can be really helpful to externalise issues or feelings about self on paper or by using objects.
 
 I﻿ also work using different aspects or 'parts' of self. I work with something called 'Inner Relationship Focusing' which has a huge amount in common with **Internal Family Systems**, developed by Dick Schwartz.
-
-
-
-
 
 **What I charge for sessions**
 
