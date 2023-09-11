@@ -25,10 +25,12 @@ F﻿or information about what I charge for sessions, and where I'm located [see 
 B﻿elow are some blog posts about counselling and focusing and other subjects. 
 
 W﻿ELCOME VIDEO - IN PROGRESS....
+<﻿<<<<<>>>>>>
+
 
 
 
 ![](/images/meric-dagli-518103-unsplash.jpg)
 
 [Starting counselling](/posts/test-post)
-[﻿How I work](/pages/about-counselling)
+[Being a Hope Merchant](/posts/being-a-hope-merchant)
