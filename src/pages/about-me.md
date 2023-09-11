@@ -12,7 +12,7 @@ I﻿ am accredited with the [National Counselling Society](https://nationalcouns
 
 I﻿ can work with you as your counsellor, but there are other ways that we can work. 
 
-F﻿or example we can work in a more **coaching style** - eg exploring a specific goal you would like to achieve (eg more confident at work or overcoming a block) or I can provide a **guided Focusing session** (this is like meditation but turning your attention to your experiencing in the current moment: this might be sensations in your body, the emotional 'feel' of an issue in your life, or going with what comes - imagery for example).  Focusing is a profound deep change process).
+F﻿or example we can work in a more **coaching style** - eg exploring a specific goal you would like to achieve (eg more confident at work or overcoming a block) or I can provide a **guided Focusing session** (this is like meditation but turning your attention to your experiencing in the current moment: this might be sensations in your body, the emotional 'feel' of an issue in your life, or going with what comes - imagery for example).  Focusing is a profound deep change process.
 
 I﻿ am also training to be a Clean Language coach and facilitator. This is a fascinating approach where metaphors and sometimes imagery (if you are a visual person) come as part of a guided process which brings an answer to your desired outcome or something that you want to understand better (in yourself or a situation in your life).
 
@@ -20,13 +20,9 @@ I﻿ am also offering Clean Language with Focusing as a way of bringing profound
 
 F﻿or example, say you had an image of being at a crossroads, with fears of choosing the wrong way or path. Or maybe there are no clear paths. Or you can't even go down a path because you are totally stuck in some mud. This might relate to a deep indecision in you or not trusting your abilities or feelings of hopelessness. But instead of having to talk about all this, you follow the metaphors that come, which will bring deep understanding. This kind of work - and Focusing - can bring a clear understanding of what's stuck as well as what will carry forward this whole stuck situation in ways that were not possible for you before.
 
-
-
 **What I charge for sessions**
 
 £﻿55 (online) and £60 in person. More information here:
-
-
 
 **I﻿ currently work from these locations:**
 
