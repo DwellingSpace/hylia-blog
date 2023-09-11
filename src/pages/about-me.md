@@ -10,6 +10,18 @@ I'm a qualified person-centred counsellor, I trained at City Lit in London betwe
 
 I﻿ am accredited with the [National Counselling Society](https://nationalcounsellingsociety.org/counsellors/ncs19-08005) and abide by their ethical practice and guidelines for good counselling and therapy.
 
+I﻿ can work with you as your counsellor, but there are other ways that we can work. 
+
+F﻿or example we can work in a more coaching style - eg exploring a specific goal you would like to achieve (eg more confident at work or overcoming a block) or I can provide a guided Focusing session (is like meditation but turning your attention to your experiencing in the current moment. This might be sensations in your body, the emotional 'feel' of an issue in your life, or going with what comes - imagery for example). 
+
+I﻿ am also training to be a Clean Language coach and faciltator. This is a fascinating approach where metaphors and sometimes imagery (if you are a visual person) comes as part of a guided process which brings an answer to your desired outcome or something that you want to understand better (in yourself or a situation in your life).
+
+I﻿ am also offering Clean Language with Focusing as a way of bringing profound and deep change to stuck and unresolved or repeating issues that you've not been able to solve or make headway with before, either by yourself or from previous counselling, coaching or personal development practices.
+
+
+
+
+
 **What I charge for sessions**
 
 I﻿ charge between £55 and £60 per session. If we meet online, the cost is £55 per 60 minute session. I usually work using software called VSee. *(You can access this from your browser without having to download anything, and the VSee platform is confidential).*
