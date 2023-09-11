@@ -10,15 +10,29 @@ I'm a qualified person-centred counsellor, I trained at City Lit in London betwe
 
 I﻿ am accredited with the [National Counselling Society](https://nationalcounsellingsociety.org/counsellors/ncs19-08005) and abide by their ethical practice and guidelines for good counselling and therapy.
 
+I﻿ am insured with Holistic insurance services.
+
+
+
 I﻿ can work with you as your counsellor, but there are other ways that we can work. 
 
 F﻿or example we can work in a more **coaching style** - eg exploring a specific goal you would like to achieve (eg more confident at work or overcoming a block) or I can provide a **guided Focusing session** (this is like meditation but turning your attention to your experiencing in the current moment: this might be sensations in your body, the emotional 'feel' of an issue in your life, or going with what comes - imagery for example).  Focusing is a profound deep change process.
 
-I﻿ am also training to be a Clean Language coach and facilitator. This is a fascinating approach where metaphors and sometimes imagery (if you are a visual person) come as part of a guided process which brings an answer to your desired outcome or something that you want to understand better (in yourself or a situation in your life).
+I﻿ am also training to be a **Clean Language coach and facilitator**. This is a fascinating approach where metaphors and sometimes imagery (if you are a visual person) come as part of a guided process which brings an answer to your desired outcome or something that you want to understand better (in yourself or a situation in your life).
 
-I﻿ am also offering Clean Language with Focusing as a way of bringing profound and deep change to stuck and unresolved or repeating issues that you've not been able to solve or make headway with before, either by yourself or from previous counselling, coaching or personal development practices. This is really helpful for intractable issues. It is also a way of working where you don't need to talk about the issues - deep change can happen through metaphors.
+I﻿ am also offering **Clean Language** **with Focusing** as a way of bringing profound and deep change to stuck and unresolved or repeating issues that you've not been able to solve or make headway with before, either by yourself or from previous counselling, coaching or personal development practices. This is really helpful for intractable issues. It is also a way of working where you don't need to talk about the issues - deep change can happen through metaphors.
 
 F﻿or example, say you had an image of being at a crossroads, with fears of choosing the wrong way or path. Or maybe there are no clear paths. Or you can't even go down a path because you are totally stuck in some mud. This might relate to a deep indecision in you or not trusting your abilities or feelings of hopelessness. But instead of having to talk about all this, you follow the metaphors that come, which will bring deep understanding. This kind of work - and Focusing - can bring a clear understanding of what's stuck as well as what will carry forward this whole stuck situation in ways that were not possible for you before.
+
+**Art and Imagery:** W﻿e can also bring in images into sessions by representing your issues, feelings, needs etc on paper. Eg with crayons, pastels, coloured pencils (which can be used like watercolours) and pens. 
+
+I﻿ am also looking to incorporate **sand tray work** or representing aspects of you experiences in objects. It can be really helpful to externalise issues or feelings about self on paper or by using objects.
+
+I﻿ also work using different aspects or 'parts' of self. I work with something called 'Inner Relationship Focusing' which has a huge amount in common with **Internal Family Systems**, developed by Dick Schwartz.
+
+
+
+
 
 **What I charge for sessions**
 
