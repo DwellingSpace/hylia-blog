@@ -12,21 +12,23 @@ I﻿ am accredited with the [National Counselling Society](https://nationalcouns
 
 I﻿ can work with you as your counsellor, but there are other ways that we can work. 
 
-F﻿or example we can work in a more coaching style - eg exploring a specific goal you would like to achieve (eg more confident at work or overcoming a block) or I can provide a guided Focusing session (this is like meditation but turning your attention to your experiencing in the current moment. This might be sensations in your body, the emotional 'feel' of an issue in your life, or going with what comes - imagery for example). 
+F﻿or example we can work in a more **coaching style** - eg exploring a specific goal you would like to achieve (eg more confident at work or overcoming a block) or I can provide a **guided Focusing session** (this is like meditation but turning your attention to your experiencing in the current moment: this might be sensations in your body, the emotional 'feel' of an issue in your life, or going with what comes - imagery for example).  Focusing is a profound deep change process).
 
-I﻿ am also training to be a Clean Language coach and faciltator. This is a fascinating approach where metaphors and sometimes imagery (if you are a visual person) comes as part of a guided process which brings an answer to your desired outcome or something that you want to understand better (in yourself or a situation in your life).
+I﻿ am also training to be a Clean Language coach and facilitator. This is a fascinating approach where metaphors and sometimes imagery (if you are a visual person) come as part of a guided process which brings an answer to your desired outcome or something that you want to understand better (in yourself or a situation in your life).
 
-I﻿ am also offering Clean Language with Focusing as a way of bringing profound and deep change to stuck and unresolved or repeating issues that you've not been able to solve or make headway with before, either by yourself or from previous counselling, coaching or personal development practices.
+I﻿ am also offering Clean Language with Focusing as a way of bringing profound and deep change to stuck and unresolved or repeating issues that you've not been able to solve or make headway with before, either by yourself or from previous counselling, coaching or personal development practices. This is really helpful for intractable issues. It is also a way of working where you don't need to talk about the issues - deep change can happen through metaphors.
+
+F﻿or example, say you had an image of being at a crossroads, with fears of choosing the wrong way or path. Or maybe there are no clear paths. Or you can't even go down a path because you are totally stuck in some mud. This might relate to a deep indecision in you or not trusting your abilities or feelings of hopelessness. But instead of having to talk about all this, you follow the metaphors that come, which will bring deep understanding. This kind of work - and Focusing - can bring a clear understanding of what's stuck as well as what will carry forward this whole stuck situation in ways that were not possible for you before.
+
+
 
 **What I charge for sessions**
 
-I﻿ charge between £55 and £60 per session. If we meet online, the cost is £55 per 60 minute session. I usually work using software called VSee. *(You can access this from your browser without having to download anything, and the VSee platform is confidential).*
+£﻿55 (online) and £60 in person. More information here:
 
-I﻿f we meet in person, in a counselling room in Brighton, the cost is £60 for 50-60 minutes. I try to offer a full 60 minute session whenever possible, but sometimes room bookings by the hour effectively means a 50 minute-or-so hour.
 
-(*I can also offer longer sessions, eg 1.5 hours, both online or in-person, if this would suit you better - the cost of this is negotiable between us*). I'm also open to a longer session of 75 minutes for the additional cost of an extra half hour of room booking (£11).
 
-I﻿ currently work from these locations:
+**I﻿ currently work from these locations:**
 
 [﻿Unique Mind Therapy Rooms](https://www.uniquemindtherapyrooms.co.uk/)
 [﻿75 Church Road, Hove, BN3 2BB (map)](https://www.google.com/maps/place/Unique+Mind+Counselling+%26+Psychotherapy/@50.8274911,-0.168086,18z/data=!3m1!4b1!4m6!3m5!1s0x487585439c3ac891:0x1fba5eb39d1ab0a!8m2!3d50.82749!4d-0.1672167!16s%2Fg%2F11c51rtk6g?entry=ttu)
@@ -41,17 +43,13 @@ A﻿nd at:
 
 Y﻿ou are very welcome to talk with me about what you would like at this point in your life. I'm happy to answer any questions you have about counselling with me and about focusing.
 
-**R﻿egularity of sessions:**
-
-W﻿ith counselling, some regularity of sessions is helpful for us both. Some people, sometimes for financial reasons, have sessions every 2 weeks with me. I think a longer gap than 2 weeks between sessions can make it harder to have continuity in the work together so I prefer either weekly or bi-weekly. You can also have sessions twice a week if you need - for example to get you through a crisis.
+**R﻿egularity of sessions:** W﻿ith counselling, some regularity of sessions is helpful for us both. Some people, sometimes for financial reasons, have sessions every 2 weeks with me. I think a longer gap than 2 weeks between sessions can make it harder to have continuity in the work together so I prefer either weekly or bi-weekly. You can also have sessions twice a week if you need - for example to get you through a crisis.
 
 W﻿ith guided Focusing and Clean Language, and coaching - you can arrange sessions on a more as-and-when you need as they are more stand-alone sessions.
 
 I﻿ usually offer open-ended counselling - you decide when it is right to end sessions, or take a break. However, we could also agree to work for a set period of time - eg 6 sessions - and then review how that is.
 
 I﻿t is also good to review how sessions are going from time to time. Please also do let me know if you'd like some changes in how I am working with you or we are working together. I would like sessions to be of maximum benefit for you.
-
-
 
 <!--StartFragment-->
 
