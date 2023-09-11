@@ -12,15 +12,11 @@ I﻿ am accredited with the [National Counselling Society](https://nationalcouns
 
 I﻿ can work with you as your counsellor, but there are other ways that we can work. 
 
-F﻿or example we can work in a more coaching style - eg exploring a specific goal you would like to achieve (eg more confident at work or overcoming a block) or I can provide a guided Focusing session (is like meditation but turning your attention to your experiencing in the current moment. This might be sensations in your body, the emotional 'feel' of an issue in your life, or going with what comes - imagery for example). 
+F﻿or example we can work in a more coaching style - eg exploring a specific goal you would like to achieve (eg more confident at work or overcoming a block) or I can provide a guided Focusing session (this is like meditation but turning your attention to your experiencing in the current moment. This might be sensations in your body, the emotional 'feel' of an issue in your life, or going with what comes - imagery for example). 
 
 I﻿ am also training to be a Clean Language coach and faciltator. This is a fascinating approach where metaphors and sometimes imagery (if you are a visual person) comes as part of a guided process which brings an answer to your desired outcome or something that you want to understand better (in yourself or a situation in your life).
 
 I﻿ am also offering Clean Language with Focusing as a way of bringing profound and deep change to stuck and unresolved or repeating issues that you've not been able to solve or make headway with before, either by yourself or from previous counselling, coaching or personal development practices.
-
-
-
-
 
 **What I charge for sessions**
 
@@ -45,9 +41,17 @@ A﻿nd at:
 
 Y﻿ou are very welcome to talk with me about what you would like at this point in your life. I'm happy to answer any questions you have about counselling with me and about focusing.
 
-A﻿lthough I am a qualified counsellor, I also work in other ways - you could have a more **coaching** style of working with me, or you can have **guided focusing sessions.** I will be adding a video to this site soon to show what focusing can look like.
+**R﻿egularity of sessions:**
 
-W﻿ith counselling, some regularity of sessions is helpful for us both. Some people, sometimes for financial reasons, have sessions every 2 weeks with me. I think a longer gap than 2 weeks between sessions can make it harder to have continuity in the work together so I prefer either weekly or bi-weekly. You can also have sessions twice a week if you need - for example to get you through a crisis
+W﻿ith counselling, some regularity of sessions is helpful for us both. Some people, sometimes for financial reasons, have sessions every 2 weeks with me. I think a longer gap than 2 weeks between sessions can make it harder to have continuity in the work together so I prefer either weekly or bi-weekly. You can also have sessions twice a week if you need - for example to get you through a crisis.
+
+W﻿ith guided Focusing and Clean Language, and coaching - you can arrange sessions on a more as-and-when you need as they are more stand-alone sessions.
+
+I﻿ usually offer open-ended counselling - you decide when it is right to end sessions, or take a break. However, we could also agree to work for a set period of time - eg 6 sessions - and then review how that is.
+
+I﻿t is also good to review how sessions are going from time to time. Please also do let me know if you'd like some changes in how I am working with you or we are working together. I would like sessions to be of maximum benefit for you.
+
+
 
 <!--StartFragment-->
 
