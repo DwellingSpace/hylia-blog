@@ -29,8 +29,9 @@ T﻿he first session (and introductory chat) is also a good time to ask any ques
 
 Y﻿ou are under no pressure *at all* to continue after the first session. However, it is worth bearing in mind that it can all feel strange at first and it might take 2, 3 sessions to assess how it is for you. I find that a lot of people need to share with me what they've been holding in and coping with in their first session, especially if they are feeling a lot of need for counselling. I am committed to being with you and to fully hearing and understanding what you're going through, and what you're needing from me, your counsellor.
 
-Some people meet with more than one counsellor for an initial chat or first session to see what feels right to them. The therapeutic relationship between you and your counsellor is of paramount importance and it is totally fine to try out a few different counsellors.
+Some people meet with more than one counsellor for an initial chat or first session to see what feels right to them. The therapeutic relationship between you and your counsellor is of paramount importance and it is totally fine to try out a few different counsellors. You won't offend me :)
 
-A﻿lthough many people do share a lot in the first session, and get things off their chest, it is also absolutely fine to not feel ok sharing yet, to ask questions, and to take it at your pace. I can also offer some anxiety-calming breathing and grounding techniques if you feel overwhelmed when we first meet. It is normal to feel very apprehensive, scared or unsettled about meeting someone - me - for the first time.
+A﻿lthough many people do share a lot in the first session, and get things off their chest, it is also absolutely fine to not feel ok sharing yet, to ask questions, to test the water, and to take things
+at your pace. I can also offer some anxiety-calming breathing and grounding techniques if you feel overwhelmed when we first meet. It is normal to feel very apprehensive, scared or unsettled about meeting someone - me - for the first time. It would be a bit strange if you didn't (though if you don't feel apprehensive that is also fine!).
 
 I﻿ am committed to making your first session as comfortable as possible, and there are no rules on how you should be. Please feel welcomed to come as you are.
