@@ -4,31 +4,32 @@ title: About me
 permalink: ""
 socialImage: /images/alisoncounsellingaug23.jpg
 ---
-![](/images/alison-warm.jpg)
+![](/images/alisoncounsellingaug23.jpg)
 
- ﻿I'm a qualified person-centred counsellor, I trained at City Lit in London between 2012 and 2016. I am also a focusing practitioner with the [British Focusing Association](http://www.focusing.org.uk/member-profile/alisonthorpe) and have been supporting people with focusing since 2011.
+I'm a qualified person-centred counsellor, I trained at City Lit in London between 2012 and 2016. I am also a focusing practitioner with the [British Focusing Association](http://www.focusing.org.uk/member-profile/alisonthorpe) and have been supporting people with focusing since 2011.
 
 I﻿ am accredited with the [National Counselling Society](https://nationalcounsellingsociety.org/counsellors/ncs19-08005) and abide by their ethical practice and guidelines for good counselling and therapy.
 
-Y﻿ou can have counselling sessions with me, and you can also come and learn focusing with me or book a focusing session to see what it's all about.
-
 **What I charge for sessions**
 
-I﻿ charge between £50 and £55 per session. If we meet over Zoom or Skype etc, then the cost is £50 per 60 minute session. If we meet in-person, in a counselling room in Brighton, the cost is £55 for 50 minutes. (I can also offer longer sessions, eg 1.5 hours, both online or in-person, if this would suit you better - the cost of this is negotiable between us).
+I﻿ charge between £55 and £60 per session. If we meet online, the cost is £55 per 60 minute session. I usually work using software called VSee. *(You can access this from your browser without having to download anything, and the VSee platform is confidential).*
 
-**For focusing sessions** this is £45 online and £50 in person (BN3 5QL).
+I﻿f we meet in person, in a counselling room in Brighton, the cost is £60 for 50-60 minutes. I try to offer a full 60 minute session whenever possible, but sometimes room bookings by the hour effectively means a 50 minute-or-so hour.
 
-I currently work at [Hove Counselling and Psychotherapy](https://www.hovecounsellingandpsychotherapy.co.uk)
+(*I can also offer longer sessions, eg 1.5 hours, both online or in-person, if this would suit you better - the cost of this is negotiable between us*). I'm also open to a longer session of 75 minutes for the additional cost of an extra half hour of room booking (£11).
 
-[148 Portland Road, Hove, BN3 5QL  (map)](https://www.google.co.uk/maps/place/148+Portland+Rd,+Hove+BN3+5QL/@50.8331519,-0.1872639,17z/data=!3m1!4b1!4m5!3m4!1s0x48759ab2e8763eed:0x392d32e02d282b9b!8m2!3d50.8331519!4d-0.1850699)
+I﻿ currently work from these locations:
 
-
-
-and at 
+[﻿Unique Mind Therapy Rooms](https://www.uniquemindtherapyrooms.co.uk/)
+[﻿75 Church Road, Hove, BN3 2BB (map)](https://www.google.com/maps/place/Unique+Mind+Counselling+%26+Psychotherapy/@50.8274911,-0.168086,18z/data=!3m1!4b1!4m6!3m5!1s0x487585439c3ac891:0x1fba5eb39d1ab0a!8m2!3d50.82749!4d-0.1672167!16s%2Fg%2F11c51rtk6g?entry=ttu)
 
 [Hove Therapy Rooms](http://www.hovetherapyrooms.co.uk/)
-
 [69 Church Street, Hove, BN3 2BB (map)](https://www.google.co.uk/maps/place/Hove+Therapy+Rooms/@50.8274527,-0.169047,17z/data=!3m2!4b1!5s0x4875856db4be2211:0xbd3df7230b051ce2!4m5!3m4!1s0x48758546d7924da7:0x1954ff1ba24dc6ce!8m2!3d50.8274493!4d-0.1668583)
+
+A﻿nd at:
+
+[Hove Counselling and Psychotherapy](https://www.hovecounsellingandpsychotherapy.co.uk)
+[148 Portland Road, Hove, BN3 5QL  (map)](https://www.google.co.uk/maps/place/148+Portland+Rd,+Hove+BN3+5QL/@50.8331519,-0.1872639,17z/data=!3m1!4b1!4m5!3m4!1s0x48759ab2e8763eed:0x392d32e02d282b9b!8m2!3d50.8331519!4d-0.1850699)
 
 Y﻿ou are very welcome to talk with me about what you would like at this point in your life. I'm happy to answer any questions you have about counselling with me and about focusing.
 
