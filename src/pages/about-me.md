@@ -44,7 +44,7 @@ I﻿ also work using different aspects or 'parts' of self. I work with something
 A﻿nd at:
 
 [Hove Counselling and Psychotherapy](https://www.hovecounsellingandpsychotherapy.co.uk)
-[148 Portland Road, Hove, BN3 5QL  (map)](https://www.google.co.uk/maps/place/148+Portland+Rd,+Hove+BN3+5QL/@50.8331519,-0.1872639,17z/data=!3m1!4b1!4m5!3m4!1s0x48759ab2e8763eed:0x392d32e02d282b9b!8m2!3d50.8331519!4d-0.1850699)
+[148 Portland Road, Hove, BN3 5QL (map)](https://www.google.co.uk/maps/place/148+Portland+Rd,+Hove+BN3+5QL/@50.8331519,-0.1872639,17z/data=!3m1!4b1!4m5!3m4!1s0x48759ab2e8763eed:0x392d32e02d282b9b!8m2!3d50.8331519!4d-0.1850699)
 
 Y﻿ou are very welcome to talk with me about what you would like at this point in your life. I'm happy to answer any questions you have about counselling with me and about focusing.
 
