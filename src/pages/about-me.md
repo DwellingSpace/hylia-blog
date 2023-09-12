@@ -30,7 +30,8 @@ I﻿ also work using different aspects or 'parts' of self. I work with something
 
 **What I charge for sessions**
 
-£﻿55 (online) and £60 in person. More information here:
+£﻿55 (online) and £60 in person. More information [here:](/pages/fees)
+
 
 **I﻿ currently work from these locations:**
 
