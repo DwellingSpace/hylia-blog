@@ -11,12 +11,12 @@ socialImage: /images/jr-korpa-k9TDpGMDavs-unsplash.jpg
 
 W﻿elcome to my website. 
 
-I﻿'m a counsellor working online and in-person in Brighton and Hove. I also work in other ways - for example coaching and offering guided Focusing sessions for deep change [see here](/pages/about-me).
+I﻿'m a counsellor working in-person in Brighton and Hove, as well as online. As well as offering counselling, I also work in other ways - for example coaching and offering guided Focusing sessions for deep change [see here](/pages/about-me).
 
-My aim is to provide plenty of information, via blog posts and videos, so you can get a good idea of how I work and how we might work together if you decide to come and have a session with me.
-I﻿ will also be writing about trauma and how therapy works.
+My aim for this website is to provide plenty of information, via blog posts and videos, so you can get a good idea of how I work and how we might work together if you decide to come and have a session with me.
+I﻿ will also be writing about trauma, how therapy works and various subjects, eg how to cope with anxiety.
 
-Y﻿ou can either go straight ahead and book a session with me - online or in-person - or you're welcome to have an initial 20 minute Zoom or phone call (no charge). You can ask questions and say a little bit about what you'd like to explore in sessions).
+Y﻿ou can go straight ahead and book an initial session with me - online or in-person - or you're welcome to have an initial 20-30 minute Zoom/phone call (no charge). You can ask questions and say a little bit about what you'd like to explore in sessions.
 
 Please **[email me](mailto:dwellingspacecounselling@gmail.com)** or call/text:  **0772 803 6688**
 
@@ -24,13 +24,7 @@ F﻿or information about what I charge for sessions, and where I'm located [see 
 
 B﻿elow are some blog posts about counselling and focusing and other subjects. 
 
-W﻿ELCOME VIDEO - IN PROGRESS....
-<﻿<<<<<>>>>>>
-
-
-
+C﻿OMING SOON: 
+W﻿ELCOME VIDEO
 
 ![](/images/meric-dagli-518103-unsplash.jpg)
-
-[Starting counselling](/posts/test-post)
-[Being a Hope Merchant](/posts/being-a-hope-merchant)
