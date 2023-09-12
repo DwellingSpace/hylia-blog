@@ -24,7 +24,5 @@ F﻿or information about what I charge for sessions, and where I'm located [see 
 
 B﻿elow are some blog posts about counselling and focusing and other subjects. 
 
-C﻿OMING SOON: 
-W﻿ELCOME VIDEO
 
 ![](/images/meric-dagli-518103-unsplash.jpg)
