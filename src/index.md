@@ -11,16 +11,12 @@ socialImage: /images/jr-korpa-k9TDpGMDavs-unsplash.jpg
 
 I﻿'m a counsellor working in-person in Brighton and Hove, as well as online. As well as offering counselling, I also work in other ways - for example coaching and offering guided Focusing sessions for deep change [see here](/pages/about-me).
 
-My aim for this website is to provide plenty of information, via blog posts and videos, so you can get a good idea of how I work and how we might work together if you decide to come and have a session with me.
-I﻿ will also be writing about trauma, how therapy works and various subjects, eg how to cope with anxiety.
+I﻿ write about trauma, experiential therapy and why it is so helpful, as well as guides to coping with anxiety, procrastination, and inner criticism.
 
-Y﻿ou can go straight ahead and book an initial session with me - online or in-person - or you're welcome to have an initial 20-30 minute Zoom/phone call (no charge). You can ask questions and say a little bit about what you'd like to explore in sessions.
+H﻿opefully you find these useful and can get more of an idea of how we might work together if you want to contact me to work together.
+
+Y﻿ou can go straight ahead and book an initial session with me - online or in-person - or you're welcome to have an initial 20-30 minute Zoom/phone call (no charge). You can ask questions and say a bit about what you'd like to explore in sessions.
 
 Please **[email me](mailto:dwellingspacecounselling@gmail.com)** or call/text:  **0772 803 6688**
 
 F﻿or information about what I charge for sessions, and where I'm located [see here](/pages/about-me) and [here.](/pages/fees)
-
-B﻿elow are some blog posts about counselling and focusing and other subjects. 
-
-
-![](/images/meric-dagli-518103-unsplash.jpg)
