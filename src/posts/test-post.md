@@ -3,7 +3,7 @@ layout: layouts/post.njk
 title: Starting counselling
 metaTitle: counselling with Alison BN3 Brighton Hove
 socialImage: /images/alison-warm.jpg
-date: 2022-10-05T13:30:18.449Z
+date: 2023-09-12T20:04:34.623Z
 ---
 > When I have been listened to and when I have been heard, I am able to re-perceive my world in a new way and to go on. It is astonishing how elements which seem insoluble become soluble when someone listens. How confusions which seem irremediable turn into relatively clear flowing streams when one is heard.
 >
@@ -13,7 +13,7 @@ date: 2022-10-05T13:30:18.449Z
 
 There are different ways of exploring whether you'd like to have counselling - or focusing, or coaching sessions with me.
 
-Y﻿ou can email, text or call me. We can then either book in a first session (in-person or online) or you can have an introductory chat for about 20 minutes that is free of charge. Here you can ask questions about how I work and booking a session with me, and share a bit about what you're looking for from counselling or coaching, or ask what a focusing session would look like.
+Y﻿ou can email, text or call me. We can then either book in a first session (in-person or online) or you can have an introductory chat for about 20-30 minutes that is free of charge. Here you can ask questions about how I work and share a bit about what you're looking for from counselling or coaching, or ask what a focusing session would look like. You can then decide if you'd like to book a session with me, or leave it there.
 
 **W﻿hat happens in a first session?**
 
