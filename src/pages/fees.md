@@ -2,7 +2,7 @@
 layout: layouts/page.njk
 title: Fees
 ---
-I﻿ charge between **£55** (online) and **£60** (in person) per session. 
+I﻿ charge **£55** (online) and **£60** (in person) per session. 
 
 I﻿ aim to offer full hour (60 minute) sessions. This is possible online and at Unique Mind Therapy Rooms (address below). With Hove Therapy Rooms and Portland Road rooms, I may only be able to offer 50-53 minute sessions due to needing to vacate the room for the next counsellor & client. 
 
