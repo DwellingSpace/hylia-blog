@@ -2,7 +2,8 @@
 layout: home
 title: Counselling with Nora
 metaTitle: Counselling in Brighton and Hove with Nora Larimar BN1 BN2 BN3 BN41
-metaDesc: counselling and focusing in Hove, Brighton, BN1, BN2, BN3, BN41, BN43
+metaDesc: counselling; focusing; clean language; Hove, Brighton, BN1, BN2, BN3,
+  BN41, BN43
 postsHeading: Latest posts
 archiveButtonText: See all posts
 socialImage: /images/jr-korpa-k9TDpGMDavs-unsplash.jpg
