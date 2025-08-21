@@ -1,6 +1,6 @@
 ---
 layout: home
-title: Counselling with Alison
+title: Counselling with Nora
 metaTitle: Counselling in Brighton and Hove with Alison Thorpe BN1 BN2 BN3 BN41
 metaDesc: counselling and focusing in Hove, Brighton, BN1, BN2, BN3, BN41, BN43
 postsHeading: Latest posts
